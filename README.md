@@ -7,7 +7,7 @@
 Tower @ Altona
 
 Звук и ТВ:
-* А/V ресивер - Onkyo 616
+* А/V ресивер - Onkyo 616 http://www.eu.onkyo.com/en/products/tx-nr616-76093.html
 * Колонки фирмы Monitor Audio, модель Bronze:
 1. Фронт - Monitor Audio Bronze BX5 http://www.pult.ru/product/51890.htm
 2. Сбоку и тылы -  Monitor Audio Bronze BX FX (два комплекта, дипольные) http://pult.ru/product/51911.htm
